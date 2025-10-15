@@ -1,0 +1,2 @@
+# ProjetoElp4Paises_2025_VANDERLEI_FONSECA_2_bimestre
+PROJETO PAISES 2025
